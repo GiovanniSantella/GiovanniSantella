@@ -1,4 +1,4 @@
-# 🌌 Enigmatic Sleep Paradox 🌌
+# 🌌 BioHackedSleep 🌌
 
 ## ✨ Chi Sono
 Ciao a tutti! Sono **Giovanni Santella**, un esploratore curioso del mondo del sonno e del biohacking. La mia missione è svelare i misteri che circondano il sonno e scoprire come possiamo utilizzare la scienza per migliorare la nostra vita quotidiana. Sono appassionato di tecniche innovative che ci permettono di ottenere il massimo dal nostro riposo e dai nostri sogni.
